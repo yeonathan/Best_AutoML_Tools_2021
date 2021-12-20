@@ -13,5 +13,5 @@ For any consulting jobs you can contact me at yeonathanbouaziz@gmail.com,
 
 Best,
 
-Philippe Yeonathan Bouaziz 
+Philippe Yeonathan Bouaziz, Senior Data Scientist, PhD
 
